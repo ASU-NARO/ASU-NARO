@@ -1,2 +1,7 @@
-hiii read my [rentry](https://rentry.co/antiholy) to know more about me 🍷 and drop by my [guestbook](https://alucard.123guestbook.com/#) if you have anything to say ![h](https://mikejima.crd.co/assets/images/gallery19/be4e14eb.gif?v=7f0bb6df)
+![d](https://watermelon.crd.co/assets/images/gallery15/51c8256b.png?v=90e42ef7)![d](https://watermelon.crd.co/assets/images/gallery15/51c8256b.png?v=90e42ef7)![d](https://watermelon.crd.co/assets/images/gallery15/51c8256b.png?v=90e42ef7)![d](https://watermelon.crd.co/assets/images/gallery15/51c8256b.png?v=90e42ef7)
 
+![f](https://watermelon.crd.co/assets/images/gallery19/8372d80f.gif?v=90e42ef7)ㅤNot associated with Dr. Hiyori or ASUNARO.
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[RENTRY](https://rentry.co/antiholy)
+
+![m](https://cdn140.picsart.com/362101901004211.png)
