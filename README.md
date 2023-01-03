@@ -1,5 +1,4 @@
 
-ㅤㅤㅤㅤㅤㅤSoushin liker jumpscare!!!!
 
 ㅤㅤㅤㅤㅤㅤㅤ[RENTRY](https://rentry.co/zerochance) [GUESTBOOK](https://alucard.123guestbook.com/#)
 
